@@ -12,4 +12,5 @@ Er ist in das Vereinsregister beim Amtsgericht Münster eingetragen.
 
 ### Vorstand:
 
-i.V. Klaus Oltmanns, Helmstrasse 4, 10827 Berlin 
+i.V. Anne Schulz, Wartbergstraße 43, 74076 Heilbronn
+ 
